@@ -4,3 +4,12 @@
 https://ja.wikipedia.org/wiki/Sudo
 
 
+```
+```
+
+```
+```
+
+```
+```
+
